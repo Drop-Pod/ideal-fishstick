@@ -22,13 +22,18 @@ The Ethical Slut
 
 Neuromancer
 
+Ugly American
+
+Rebels at Work
+
+
 
 ## Graphic Novels
 
 Transmetropolitan
 
+Trigun
 
-Ugly American
 
-Rebels at Work
+
 
