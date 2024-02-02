@@ -6,7 +6,7 @@ Collection of knowledge to help with personal growth
 Truely an amazing classic. The dangers of AI and importance of mastering one's emotions are good lessons but the most incredible is the realization that it is possible to see potential future paths. If one practices using experience to predict likely future events, it is almost possible to see the future.  
 
 ### Catch-22
-Reading this book in a combat zone was incredible. The characters were so unique and driven and the lessons they taught are truely universal. In the Syndicate, everyone gets a share.
+Reading this book in a combat zone was incredible. The characters were so unique and driven and the lessons they taught are really universal. In the Syndicate, everyone gets a share.
 
 ### Neuromancer
 ### Brave New World
