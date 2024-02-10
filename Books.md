@@ -26,8 +26,9 @@ Reading this really helped challenge assumptions that I made about relationship 
 
 ### Rebels at Work
 
-
-
+.
+.
+.
 ## Fiction
 Collection of knowledge to help with personal growth
 
